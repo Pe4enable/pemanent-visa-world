@@ -11,3 +11,4 @@
 | Japan | StartUp Fukuoka City |  | 1 year | https://startup.fukuoka.jp/startup-package/ |  |  |
 |  | StartUp Tokyo City  |  |  | https://visajapan.tokyo/tokyop/ |  |  |
 |  |  | 3000 yens | 6 months | https://www.mofa.go.jp/ |  |  |
+| New Zeland | schollarship + visa |  | 3 years | https://www.immigration.govt.nz/documents/forms-and-guides/inz1222.pdf |  |  |
