@@ -4,4 +4,4 @@
 
 | Coutry | Type | Fee | Period | Site | Variation | Docs |
 | ------ | ------ | ------ | ------ | ------ | ------ | ------ |
-| Coutry | Type | Fee | Period | Site | Variation | Docs |
+| Estonia | StartUp Visa | 160 EUR |  | https://startupestonia.ee/ |  |  |
