@@ -11,13 +11,13 @@
 | Malasia | Buisness visa | 2300р |  | http://rmbu.ru/vizy/243-turisticheskaya.html | | |
 |  | Visa Run | free | 30 days |  |  |  |
 | Phillippines | Visa Run  | free | 30 days  |  |  |  |
-|  | Buisness visa |  40 USD | 1 time 3 mounthes | https://www.moscowpe.dfa.gov.ph/ |  |  |
-|  |  | 80 USD | multytime 6 mounthes  |  |  |  |
+|  | Buisness visa |  40 USD | 1 time 3 months | https://www.moscowpe.dfa.gov.ph/ |  |  |
+|  |  | 80 USD | multytime 6 months  |  |  |  |
 |  |  |  120 USD | multytime 1 year |  |  |  |
 | Vietnam | Touristic | free | 15 days  | https://www.vietnam-visa.com/ |  |  |
-|  | Buisness visa | 119$ | 1 time 1 mounth |  |  |  |
-|  |  | 119$ | 1 time 1 mounth |  |  |  |
-|  |  | 140$ | 1 time 3 mounthes |  |  |  |
-|  |  | 119$ | multytime 1 mounth |  |  |  |
-|  |  | 146$ | multytime 3 mounth |  |  |  |
-|  |  | 361$ | multytime 6 mounth |  |  |  |
+|  | Buisness visa | 119$ | 1 time 1 month |  |  |  |
+|  |  | 119$ | 1 time 1 month |  |  |  |
+|  |  | 140$ | 1 time 3 months |  |  |  |
+|  |  | 119$ | multytime 1 month |  |  |  |
+|  |  | 146$ | multytime 3 months |  |  |  |
+|  |  | 361$ | multytime 6 months |  |  |  |
